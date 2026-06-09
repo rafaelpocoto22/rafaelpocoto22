@@ -1,4 +1,5 @@
-## Hi there 👋
+<img width="247" height="204" alt="images" src="https://github.com/user-attachments/assets/9d55888f-da4f-4902-975a-4bee0fa9dbaa" />
+
 
 <!--
 **rafaelpocoto22/rafaelpocoto22** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
