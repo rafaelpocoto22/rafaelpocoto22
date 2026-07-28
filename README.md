@@ -1,4 +1,5 @@
-<img width="1920" height="1080" alt="thumb-1920-686776" src="https://github.com/user-attachments/assets/ff5b6451-e62e-439d-89be-caa8ad50b096" />
+<img width="736" height="736" alt="gon-vs-kurapika-who-is-better-written-v0-ffx7sj16dk6h1" src="https://github.com/user-attachments/assets/46af71e7-ee6a-40be-9007-825a99efcf27" />
+
 
 
 
